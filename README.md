@@ -4,4 +4,3 @@ This is my work account at [Equal Experts](https://github.com/EqualExperts), my 
 
 - 🔭 I’m currently working on ██████████████████████████ (damn those NDAs)
 - 😄 Pronouns: he/him
-- 📫 You can reach me via [Twitter/rmaclean](https://twitter.com/rmaclean)
